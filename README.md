@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @RK-SHIVA-M
 - 👀 I’m interested in ...crypto and NFTs 
-- 🌱 I’m Growing Tloh Community 
+- 🌱 I’m currently Growing Tloh Community 
 - 💞️ I’m looking to collaborate on ... NFT'S Project's 
 - 📫 How to reach me ...tlohnft@gmail.com
 
