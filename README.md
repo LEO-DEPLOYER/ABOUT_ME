@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @RK-SHIVA-M
-- 👀 I’m interested in ...nft community project 
+- 👀 I’m interested in ...crypto and NFTs 
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ... nft project's 
+- 💞️ I’m looking to collaborate on ... NFT'S Project's 
 - 📫 How to reach me ...tlohnft@gmail.com
 
 <!---
