@@ -1,10 +1,25 @@
-- 👋 Hi, I’m @RK-SHIVA-M
-- 👀 I’m interested in ...crypto and NFTs 
-- 🌱 I’m currently Growing Tloh Community 
-- 💞️ I’m looking to collaborate on ... Web3 Project's 
-- 📫 How to reach me ...tlohnft@gmail.com
+🌌👨‍🚀✨ RK SHIVA M 🚀✨🌌
 
-<!---
-RK-SHIVA-M/RK-SHIVA-M is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Bio: A visionary dreamer building a vibrant Tloh NFT community 🎨🌈🖼️
+
+🌟 Passionate Explorer 🧭🌍✨
+
+🎯 Mission-driven Dreamer 🌠🔭
+
+🖌️🚀 Fuelled by Creativity 🎨💡
+
+🔮 Visionary Alchemist 🌌🔥💫
+
+🌱 Nurturing Growth 🌱🌿🌱
+
+💡 Illuminating Minds ✨🧠🌟
+
+🌈 Spreading Joyful Colors 🎨🌈🌟
+
+🛠️ Building Dreams from Scratch 🏗️🌌
+
+💫 Transforming Ideas into Reality 💡🚀✨
+
+🚀 Let's soar together on the wings of imagination! 🌌🦅✨
+
+
