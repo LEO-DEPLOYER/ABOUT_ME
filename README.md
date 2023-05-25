@@ -1,6 +1,6 @@
 🌌👨‍🚀✨ RK SHIVA M 🚀✨🌌
 
-Bio: A visionary dreamer building a vibrant Tloh NFT community 🎨🌈🖼️
+A visionary dreamer building a vibrant Tloh NFT community 🎨🌈🖼️
 
 🌟 Passionate Explorer 🧭🌍✨
 
